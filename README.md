@@ -6,7 +6,8 @@ hope you enjoyed wasting $500 https://www.bisguard.com/
 
 ### future hacked client (what it really is) got hacked by ripbackdoored
 
-### rip kalju
-### rip 0x22
+#### rip kalju
+#### rip 0x22
+#### rip future
 
 May skids prosper
